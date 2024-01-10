@@ -1,6 +1,6 @@
 # Introduction
 
-#### Your Name (Your Student Number)
+#### LANXIN YE (041102140)
 
 I am looking forward to...
 
